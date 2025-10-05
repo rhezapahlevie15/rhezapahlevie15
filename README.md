@@ -9,7 +9,7 @@
 <br/>
 <div align="center">
  
- ⚡ I’m currently learning on **Bangkit Academy 2024 program** ⚡
+ ⚡ Graduated Bachelor's Degree in **Information System at Brawijay University** ⚡
 
  </div>
 
